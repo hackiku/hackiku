@@ -1,3 +1,3 @@
 Wingin' it with more right rudder (ignore air resistance).
 
-Copywriter turned aerospacey product designer
+SaaS copywriter turned aerospacey interfacey product designer.
